@@ -4,7 +4,7 @@
 
 ## Links
 
-- [Google scholar](scholar.google.com/citations?user=ZiBhwlwAAAAJ&hl=en) 
+- [Google scholar](https://scholar.google.com/citations?user=ZiBhwlwAAAAJ&hl=en) 
 
 ## Publications 
 
